@@ -1,1 +1,0 @@
-# tumbeaktak.github.io
